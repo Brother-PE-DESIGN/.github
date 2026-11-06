@@ -30,7 +30,7 @@ A first visit should be one short lettering pass, then the same Brother PE-DESIG
 | Red | No title, no note, lettering unlabeled | Stop and name the layout first |
 | Clear | Handoff written, live pages few | Close Brother PE-DESIGN and leave the studio |
 
-![Brother PE-DESIGN](https://www.directsewingmachines.co.uk/wp-content/uploads/cm/catalog/Products/PE20PHOTO203-700x700.jpg)
+![Brother PE-DESIGN](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcT7-ZWyFunX5_HJ5jgInGPSPferPL7xwghUu1zOHAR8kQ&s=10)
 
 ## Open Order
 
